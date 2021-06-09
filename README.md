@@ -20,6 +20,6 @@
 # *Note in 6/9/21*
 - *Now Updated The Action File To Fix Bug*
 
-
+- *Sometime i connect to u rdp so please don't kick me out :( i want try but my acc is *bug* or something like this so i want try :(*
 - *So if it crack start *build* again
 - *It is my first tool so thank u so much to fork and try it :)* 
