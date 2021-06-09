@@ -23,3 +23,18 @@
 - *Sometime i connect to u rdp so please don't kick me out :( i want try but my acc is *bug* or something like this so i want try :(*
 - *So if it crack start *build* again
 - *It is my first tool so thank u so much to fork and try it :)* 
+# LET'S ADD SOME TAG TO ANYBODY KNOW IT :)
+- ***
+- cách tạo vps miễn phí.
+Cáo tạo vps free. 
+tao vps khong can the visa
+tao vps moi nhat
+huong dan tao vps no card 2020
+cách tạo vps mới nhất
+hướng dẫn tạo vps miễn phí
+cách tạo vps mới nhất
+#vpsfree
+tag: vps,vps free,cách tạo vps free,cách tạo vps miễn phí,cách tạo vps không cần visa,how to creat vps no card,cách tạo vps no visa,vps hosting,virtual private server,hosting,free vps,free vps trial,free vps trial 1 month,free vps linux,free vps 2019,free vps server linux,tạo vps free mới nhất,tạo vps không cần visa và sđt,cách tạo vps không ần visa 2020,vps miễn phí,vps amzon,vps free visa,free visa,vps free no card,vps free new,cách tạo vps ram 1gb
+#reg
+#freerdp
+***
